@@ -1,5 +1,5 @@
 ### Jenny Vanessa Quinto Córdoba ejercitacion-integradora
-
+<Romina pudo subir los archivos (risas), gracias Jenny>
 El repositorio va a quedar así, si quieren hacer cambios adelante! :)
 
 6. Quedamos acá:
